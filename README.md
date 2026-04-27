@@ -1,0 +1,1 @@
+# goldmine-resources-and-people
